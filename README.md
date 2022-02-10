@@ -1,2 +1,2 @@
 # SSK Tokens
-Made in Hawaii, by the boys, for the boys
+Made in Hawaii, by da boys, for da boys
